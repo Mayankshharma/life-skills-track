@@ -10,6 +10,7 @@ There are five key elements of active listening. They all help you ensure that y
 * Provide feedback. Provide good feedback to the speaker and ask questions if you have any
 * Defer judgment. Don't make a judgment until the speaker is done with their point.
 * Respond Appropriately. Active listening is a model for respect and understanding. You are gaining information and perspective. You add nothing by attacking the speaker or otherwise putting him or her down. Be candid, open, and honest in your response. Assert your opinions respectfully.
+
 Q2. ) According to Fisher's model, what are the key points of Reflective Listening?
 Ans ) Dalmar Fisher gave a model for Reflective Communication that talks about the listed elements:-
 * Avoid the distraction and focus on the conversation.
@@ -22,14 +23,17 @@ Ans )
 Summarizing the obstacles in my listening process:-
 * Get distracted by my own train thoughts.
 * Don't tend to take notes.
+
 Q.4 ) What can you do to improve your listening?
 Ans )
 * Will try to not get distracted by my thoughts.
 * Start a habit of taking notes.
+
 Q.5 ) When do you switch to a Passive communication style in your day-to-day life?
 Ans )
 Instances when I switch to passive speech:-
 * When my friends ask for something and it does not agree with them.
+
 Q.6 )When do you switch to Aggressive communication styles in your day-to-day life?
 Ans )
 * When someone annoys me during my work.
